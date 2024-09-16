@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @parvin528
+- 👀 I’m interested in men
+- 🌱 I’m currently learning ...web3
+- 💞️ I’m looking to collaborate on ...web3
+- 📫 How to reach me ...twitter
+- 😄 Pronouns: ...she
+- ⚡ Fun fact: ...india
